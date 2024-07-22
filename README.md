@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @seby25yakone
+- Currently learning and working with Java
+- Computer Science student
+- From 🇷🇴
